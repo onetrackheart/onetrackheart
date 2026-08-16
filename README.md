@@ -1,25 +1,25 @@
 
 
-# this is my ponytown introduction lalala
+# this is my ponytown introduction !!!
 
 
-### hello , i go by taro / ivan .
+### haihaii , i go by taro / poob !!
 
 ![divider-aesthetic](https://github.com/user-attachments/assets/eecd552a-56fb-4e5f-a2f7-57b86c8e69b5)
 
-strictly he / him .
-neutrois ( masc )
+strictly they / them
+masc-presenting nonbinary !!
 
-TAKEN . I , 11/22/2025 <3
+TAKEN . Indie , 11/22/2025 <3
 
-i struggle with comorbid npd and bpd, along with various other disorders such as being bipolar .
+i struggle with npd , potential bpd, along with various other disorders such as being bipolar .
 if this bothers you , hide me or ignore me , its that simple
 
 i am a MINOR . pls do not int if you are above 21+
 
 # ｡𖦹°‧
 
-avid ponytown player . very multifandom , accepting to most ships that are NOT problematic . 
+avid ponytown player . very multifandom , accepting to most ships that are NOT problematic or illegal . 
 always open to c+h , PLS int w me bc im a lonely sack of trash that doesnt have many friends 
 
 i am currently hyperfixated with Bad Things , Phighting , Animal Hospital , Mollys Future Mishaps , Slendytubbies , The Nightly Manor , and Objectified
