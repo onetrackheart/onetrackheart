@@ -7,7 +7,7 @@
 
 ![divider-aesthetic](https://github.com/user-attachments/assets/eecd552a-56fb-4e5f-a2f7-57b86c8e69b5)
 
-strictly they / them
+strictly he / him
 masc-presenting nonbinary !!
 
 TAKEN . Indie , 11/22/2025 <3
